@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zEkorAd
+- 👀 I’m interested in games
+- 🌱 I’m currently studying to be a programmer
+- 📫 How to reach me discord:апсалют | Дитя лоботомии#6993
